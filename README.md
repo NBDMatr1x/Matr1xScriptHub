@@ -3,4 +3,4 @@ A roblox script hub, has many different scripts for many different games in it.
 
 Its obfuscated btw so pls dont try steal. 
 
-discord server: https://discord.gg/5BgXJDtP8t
+discord server: https://discord.gg/QzsyYz7cZP
